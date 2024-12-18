@@ -6,7 +6,6 @@
 ![Screenshot (986)](https://github.com/Yash084/BookADoc/assets/91718061/9b4f3532-4d1a-44ce-afc4-8c5a5629c274)
 ![Screenshot (985)](https://github.com/Yash084/BookADoc/assets/91718061/4b0ca8b8-e46e-4b07-b1c2-f81e095f2f68)
 ![Screenshot (984)](https://github.com/Yash084/BookADoc/assets/91718061/78643213-f92e-42ee-b39b-69d39414b0be)
-![Screenshot (983)](https://github.com/Yash084/BookADoc/assets/91718061/b1382a02-e3f0-4a75-adf8-ce8ca1590b
 ![Screenshot (982)](https://github.com/Yash084/BookADoc/assets/91718061/a2aa86e3-d65d-447a-87ae-e3eea176ef42)
 58)
 ![Screenshot (981)](https://github.com/Yash084/BookADoc/assets/91718061/2dd1ee20-8ba2-4404-ade3-3a059ee0510b)
